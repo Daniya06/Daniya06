@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Daniya06
-- 👀 I’m interested in getting a job and learning new things 
+- 👀 I’m interested in learning new things about UI and UX design 
 - 🌱 I’m currently learning front end coding and web design, moving to AI in the future 
 - 💞️ I’m looking to collaborate on websites and projects 
 - 📫 How to reach me through my insta at @daniya.s06 ! 
